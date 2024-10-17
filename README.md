@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning in caeer transition
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me datadrivenaipro@gmail.com
-- 😄 Pronouns: ...
+- 😄 SE-I-Y- F
 - ⚡ Fun fact: STUDENT FOR LIFE! 
 
 <!---
