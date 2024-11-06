@@ -1,6 +1,6 @@
 - 👋 Hi, I'm Seif, an Electrical Engineer with a strong passion for Machine Learning and its applications.
 - 👀 I’m interested in Data Science/ML/DP
-- 🌱 I’m currently in caeer transition
+- 🌱 I’m currently in career transition
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me datadrivenaipro@gmail.com
 - 😄 SE-I-Y- F
